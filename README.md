@@ -1,1 +1,3 @@
-# coursera-girls
+# coursera-girls-guide
+
+https://www.notion.so/nicolas-falconi/Postular-a-cursos-gratuitos-Coursera-a00dbc2336ed4672b7d7dc34ea9a8c59?pvs=4
